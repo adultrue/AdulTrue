@@ -1,1 +1,1 @@
-# [Adultrue: Porn Website Development & Marketig](https://adultrue.com)
+# [Adultrue: Porn Website Design, Development & Marketig](https://adultrue.com)
